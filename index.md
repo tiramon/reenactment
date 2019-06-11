@@ -9,6 +9,8 @@
 ### Beinlinge
 
 ## Geschier
+Wurzelschale, Feldflasche, Leuchter, Griffschale
+
 Fundort: Trossingen, Kr. Breisgau-Hochschwarzwald, Gräberfeld, Löhr- und Schulstraße, Grab 58.
 
 https://bawue.museum-digital.de/index.php?t=objekt&oges=8826
